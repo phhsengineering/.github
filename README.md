@@ -1,6 +1,0 @@
-# .github
-
-
-epiiccccc
-
-## join NOW
