@@ -6,6 +6,8 @@ Join our discord and dm the president to join.
 We *might* store our project files here. 
 If they're public, check them out!
 
+https://discord.gg/4vm3pRzXh6
+
 <!--
 
 **Here are some ideas to get you started:**
